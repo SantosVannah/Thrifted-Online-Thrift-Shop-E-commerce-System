@@ -51,3 +51,5 @@ MEMBERS:
 SANTOS, VANNAH MAIE R.
 AUCILLA, CRISELDA VHIE O.
 ROBIS, BRENT KRISTIAN L.
+
+NOTE: I borrowed this PC because my own PC is permenantly (water) damage
